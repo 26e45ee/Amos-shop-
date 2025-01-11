@@ -1,1 +1,1 @@
-# Amos-shop-
+#https://atangana shop.com
